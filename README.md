@@ -1,5 +1,5 @@
 # 💫 About Me:
-I ' am currently persuing B.TECH (CSE)<br>I'am currently learing the full stack web. development <br>I'am currently ARTIFICIAL INTELLIGENCE ENTHUSIAST<br>YOU CAN COMMENT <br>
+I ' am currently persuing B.TECH (CSE)<br>I'am currently learing the full stack web. development <br>I'am  ARTIFICIAL INTELLIGENCE ENTHUSIAST<br>YOU CAN COMMENT <br>
 
 
 ## 🌐 Socials:
